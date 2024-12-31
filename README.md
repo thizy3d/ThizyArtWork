@@ -1,0 +1,2 @@
+# ThizyArtWork
+Personal Website Thizy
